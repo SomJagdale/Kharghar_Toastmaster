@@ -18,3 +18,14 @@ Attached file name - Icebreaker Speech
 6)	Time limit: 5-7 Min
 
 Attached file name - Speech with Purpose
+
+
+
+1)	Name of the speaker: Somnath Jagdale
+2)	Path: Visionary Communication
+3)	Level: 1
+4)	Project: Introduction to Vocal Variety and Body Language
+5)	Speech Title: Ball Game
+6)	Time limit: 5-7 Min
+
+https://www.write-out-loud.com/toastmasters-body-language-speech-topics.html
